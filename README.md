@@ -1,1 +1,0 @@
-# sergiogar6.github.io
